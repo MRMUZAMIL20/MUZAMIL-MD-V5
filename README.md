@@ -25,7 +25,7 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
   
 --- 
 
-<a><img src='https://i.ibb.co/q3tVJGgB/lordali.jpg'/></a>
+<a><img src=''/></a>
 
 <a><img src='https://i.ibb.co/q3tVJGgB/lordali.jpg'/></a>
 
